@@ -1,3 +1,3 @@
 # legendary-succotash
 guilty crown
-masamun
+masamun ku
